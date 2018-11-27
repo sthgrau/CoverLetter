@@ -1,0 +1,1 @@
+This is an attempt to solve the problem of creating multiple, often similar cover letters. For the curious, it can also offer a wider understanding of me than might be conveyed by my limited understanding of them.
